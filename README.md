@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NEXUSROOKJACKSON
+#*#*#- 👋 Hi, I’m @NEXUSROOKJACKSON
   ✨️ I’m interested in building a platform with my documents and music
 - 🌱 I’m currently learning how to relieve ideas to merge.
 - 💞️ I’m looking to collaborate on navigating better experience.
@@ -45,5 +45,5 @@ CREATE TABLE orders (
 NEXUSROOKJACKSON/NEXUSROOKJACKSON is a ✨ particle dimensional graphing compilation to real time reality miracles ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-All dream's' send!
+All dream's' send!#*#*#
 goodbye
