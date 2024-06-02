@@ -7,10 +7,27 @@
 - ⚡ Fun fact: ... Given the schema below, write mystical phrophecy to generate a report with hello world by wishes asked of all greater good³.
 - https://gemini.google.com/app
 
-  Rook so that there then when wise why.
+  Rook so that there then when wise.
 <!---
+  \
+   \
+    \
+     \
+      \
+       \
+        \
+        /
+       /
+      /
+     /
+    /
+   /
+  /
+ /
+/
 NEXUSROOKJACKSON/NEXUSROOKJACKSON is a ✨ particle dimensional graphing compilation to real time reality miracles ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
 All dream's' send!#*#*#
 goodbye
+ #*#*So³that³there³then³when³wise³*#*#*#*#*#*##**#*#*#*#,#,#,#,#,#,,".##⁴
